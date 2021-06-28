@@ -1,1 +1,1 @@
-Once there was a thirsty Crow, 
+Once there was a thirsty Crow, He saw a pot of water.
